@@ -79,7 +79,7 @@
 * Let cool 10 minutes before serving.
 
 ## **Accurate nutrition information**
-Roughly 800 calories per serving
+* **Calories - 800 per serving
 
 * **Total Fat** - 39 grams
 
