@@ -81,11 +81,11 @@
 ## **Accurate nutrition information**
 Roughly 800 calories per serving
 
-39 gram of Fat
+* **Total Fat** - 39 grams
 
-42 gram of Carbs
+* **Carbs** - 42 grams
 
-40 gram of Protein
+* **Protein** - 40 grams
 
 
 ## **Notes and FAQ**
