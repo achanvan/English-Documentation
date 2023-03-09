@@ -79,13 +79,13 @@
 * Let cool 10 minutes before serving.
 
 ## **Accurate nutrition information**
-* **Calories - 800 per serving
+* **Calories** - **800 per serving**
 
-* **Total Fat** - 39 grams
+* **Total Fat** - **39 grams**
 
-* **Carbs** - 42 grams
+* **Carbohydrates** - **42 grams**
 
-* **Protein** - 40 grams
+* **Protein** - **40 grams**
 
 
 ## **Notes and FAQ**
