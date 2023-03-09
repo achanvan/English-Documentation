@@ -79,18 +79,17 @@
 * Let cool 10 minutes before serving.
 
 ## **Accurate nutrition information**
-* **Calories** - **800 per serving**
+* **Calories** - **650 per serving**
 
-* **Total Fat** - **39 grams**
+* **Total Fat** - **35 grams**
 
-* **Carbohydrates** - **42 grams**
+* **Carbohydrates** - **37 grams**
 
 * **Protein** - **40 grams**
 
 
 ## **Notes and FAQ**
-Storing Leftover Turkey Tetraziini
-
-* Refrigerate leftovers tightly covered for 3 to 5 days. Reheat individual portions in the microwave, or reheat in the oven at 375°F for about 30 minutes, or until the casserole is bubbly.
-
-## **Additional interactive features**
+* How to store leftover turkey tetraziini
+  * Refrigerate leftovers tightly covered for 3 to 5 days. Reheat individual portions in the microwave, or reheat in the oven at 375°F for about 30 minutes, or until the casserole is bubbly.
+* What if I am missing certain ingredients or item for my casserole?
+*  You can always substitute the missing ingredient for other ingredient, for example if you don't have peas for this receipt you can use other ingredients such as green beans, broccoli, green pepers, etc
